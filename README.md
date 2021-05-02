@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @tel3gy
+- 👀 I’m interested in Cyber Informatic and Developement.
+- 📫 How to reach me tel3gy#1337
